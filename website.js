@@ -4,3 +4,4 @@ tinyurl.com/smphmb5m
 for games
 view sites.google.com logo
 tinyurl.com/2uztbcmf 
+https://tinyurl.com/49tnrscp for me to add more games
